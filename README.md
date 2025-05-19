@@ -16,6 +16,10 @@ the Fandom I prefer to be in:
 
 ![300 primo-gemmes sont à récupérer gratuitement, mais seulement aujourd'hui, sur Genshin Impact !](https://github.com/user-attachments/assets/f1bbc981-f1c1-4733-afbf-abbfc4b89c21)
 
+![Phighting Katana and Hyperlaser Art](https://github.com/user-attachments/assets/51d2ca2f-c3b7-4101-acd7-85a4f0d765bc)
+
+![Player   Cruel king   Griefer   Hatred __ Art from Twitter_X_ @Core_0516 __ Block tales](https://github.com/user-attachments/assets/3f74ba59-c2a8-40e8-a9d0-0cfa0bfdf570)
+
 # for those who doesnt know about me I'm a heartless person when it comes to negative things n feelings and I have temporary guilt which I only feel extreme guilt for short or a bit longer time but I still truly care the one I love
 **!REMINDER: I have extreme anger issue and I'm trying to fix it and if you dont like it you may leave and dont cause any drama since I dont want anymore dramas. I HAD ENOUGH!**
 
