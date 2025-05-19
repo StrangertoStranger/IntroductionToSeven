@@ -14,6 +14,8 @@ the Fandom I prefer to be in:
 
 ![Light milk_shadow milk](https://github.com/user-attachments/assets/e3bbbceb-c916-4579-9e9a-0c0b73aa810a)
 
+![300 primo-gemmes sont à récupérer gratuitement, mais seulement aujourd'hui, sur Genshin Impact !](https://github.com/user-attachments/assets/f1bbc981-f1c1-4733-afbf-abbfc4b89c21)
+
 # for those who doesnt know about me I'm a heartless person when it comes to negative things n feelings and I have temporary guilt which I only feel extreme guilt for short or a bit longer time but I still truly care the one I love
 **!REMINDER: I have extreme anger issue and I'm trying to fix it and if you dont like it you may leave and dont cause any drama since I dont want anymore dramas. I HAD ENOUGH!**
 
