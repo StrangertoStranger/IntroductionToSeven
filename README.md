@@ -8,4 +8,4 @@ Gender:a Male but has zero interest in woman but being friend is fine.
 
 the Fandom I prefer to be in: **PHIGHTING, Block Tales, Forsaken, Dandy world[good side], Team Fortress 2, Cookie run: Kingdom(new to fandom), Genshin impact[Good side]**
 # for those who doesnt know about me I'm a heartless person when it comes to negative things n feelings and I have temporary guilt which I only feel extreme guilt for short or a bit longer time but I still truly care the one I love
-! REMINDER: I have extreme anger issue I'm
+! REMINDER: I have extreme anger issue and I'm trying to fix it and if you dont like it you may leave and dont cause any drama since I dont want anymore dramas. I HAD ENOUGH ! 
