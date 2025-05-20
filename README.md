@@ -90,6 +90,8 @@ Telamon(all telamon rlly)
 
 Doombringer(same goes to him) 
 
+ALL MIMIC MALE CHARACTERS🙏
+
 If yer one of my friend and curious what my most favorites ships are here(dont ask me later):
 
 Shampoo (Champion x Gasharpoon most favorite) 
