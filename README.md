@@ -23,6 +23,8 @@ the Fandom I prefer to be in:
 # for those who doesnt know about me I'm a heartless person when it comes to negative things n feelings and I have temporary guilt which I only feel extreme guilt for short or a bit longer time but I still truly care the one I love
 **!REMINDER: I have extreme anger issue and I'm trying to fix it and if you dont like it you may leave and dont cause any drama since I dont want anymore dramas. I HAD ENOUGH!**
 
+*(I just dislike dramas n problem also stress so I claim myself as heartless person)*
+
 Incase if you want to know about my favorite charcters for fun here:
 Banhammer(PHIGHTING!) 
 
@@ -102,6 +104,8 @@ Shederman(Shedletsky x Builderman)
 
 1xdoe (1x1x1x1 x John doe) 
 
+joined alien stage fandom lmao
+
 Block n slash (Milestone 4 Shedletsky x Milestone 4 Guest)
 
 ![Shadow Milk Cookie🕳🗨](https://github.com/user-attachments/assets/cd8d3040-1697-4252-be46-4303e98c6875)
@@ -109,3 +113,5 @@ Block n slash (Milestone 4 Shedletsky x Milestone 4 Guest)
 Idk how those ppl do strawpage dawg
 thats it bye
 {Esther is gay for me trust]
+
+feel free to c+d always encouraged ^_^
