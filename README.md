@@ -34,7 +34,7 @@ Cruel King(Blocktales)
 
 Medkit(P!) 
 
-Shadow milk cookie(Cookie run: Kingdom) 
+Shadow milk cookie(Cookie run: Kingdom) *number one shadow milk cookie fan* 
 
 Burning spice cookie (Cookie run: Kingdom) 
 
