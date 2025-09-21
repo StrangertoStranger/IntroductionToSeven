@@ -115,3 +115,5 @@ thats it bye
 {Esther is gay for me trust]
 
 feel free to c+d always encouraged ^_^
+
+*dni list: Atlas, don, any ex's i have, ppl who are friends w dni list mostly atlas's friend but few are fine to int*
