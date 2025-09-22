@@ -116,4 +116,4 @@ thats it bye
 
 feel free to c+d always encouraged ^_^
 
-*dni list: Atlas, don, any ex's i have, ppl who are friends w dni list mostly atlas's friend but few are fine to int*
+*dni list: Atlas, don, maiko, any ex's i have, ppl who are friends w dni list mostly atlas's friend but few are fine to int*
