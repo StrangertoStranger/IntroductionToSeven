@@ -26,7 +26,17 @@ the Fandom I prefer to be in:
 *(I just dislike dramas n problem also stress so I claim myself as heartless person)*
 
 Incase if you want to know about my favorite charcters for fun here:
+Metal sonic(Sonic universe)
+
+Shadow The Ultimate LifeForm(sonic universe)
+
+Kolossos(TD)
+
+Knuckles the Echidna(Sonic universe)
+
 Banhammer(PHIGHTING!) 
+
+Eggman(Sonic universe)
 
 Cruel King(Blocktales) 
 
@@ -96,7 +106,11 @@ ALL MIMIC MALE CHARACTERS🙏
 
 If yer one of my friend and curious what my most favorites ships are here(dont ask me later):
 
+Metadow (Metal Sonic x Shadow)
+
 Shampoo (Champion x Gasharpoon most favorite) 
+
+Metalossos (Metal sonic x Kolossos)
 
 Inferchrome(Infernus x Monochrome) 
 
@@ -108,7 +122,8 @@ joined alien stage fandom lmao
 
 Block n slash (Milestone 4 Shedletsky x Milestone 4 Guest)
 
-![Shadow Milk Cookie🕳🗨](https://github.com/user-attachments/assets/cd8d3040-1697-4252-be46-4303e98c6875)
+![checkyshka on twt](https://github.com/user-attachments/assets/1a8b09ab-3812-43c4-be7e-ef76831c4c7d)
+
 
 Idk how those ppl do strawpage dawg
 thats it bye
