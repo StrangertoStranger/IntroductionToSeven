@@ -1,7 +1,7 @@
 # Read-Me-To-Know-About-Me
 'Doesnt mind cuddles or sitting with me unless I have "dniuf, dniue" on please respect that, Thank y'
 
-age: 16 {Prefers to int 15+/ dni 15-}
+age: 17 {Prefers to int 15+/ dni 15-}
 
 'Prefers to go as:7, Seven **ONLY** nothing unless yer Esther but sev is fine
 
@@ -10,7 +10,7 @@ Gender:a Male but has zero interest in woman but being friend is fine.
 ![Shadow vs Upgraded Metal Sonic](https://i.makeagif.com/media/8-22-2023/TcCK1K.gif)
 
 the Fandom I prefer to be in:
-**PHIGHTING, Block Tales, Forsaken, Dandy world[good side], Team Fortress 2, Cookie run: Kingdom(new to fandom), Genshin impact[Good side]**
+**PHIGHTING, Sonic Fandom, Block Tales, Forsaken, Dandy world[good side], Team Fortress 2, Cookie run: Kingdom, Genshin impact[Good side]**
 
 ![Light milk_shadow milk](https://github.com/user-attachments/assets/e3bbbceb-c916-4579-9e9a-0c0b73aa810a)
 
