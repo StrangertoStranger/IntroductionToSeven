@@ -9,6 +9,8 @@ Gender:a Male but has zero interest in woman but being friend is fine.
 
 ![Shadow vs Upgraded Metal Sonic](https://i.makeagif.com/media/8-22-2023/TcCK1K.gif)
 
+mostly uses y, yer, yers, yer're as in you, your, youre, you're because im lazy
+
 the Fandom I prefer to be in:
 **PHIGHTING, Sonic Fandom, Block Tales, Forsaken, Dandy world[good side], Team Fortress 2, Cookie run: Kingdom, Genshin impact[Good side]**
 
