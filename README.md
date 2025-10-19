@@ -22,6 +22,8 @@ the Fandom I prefer to be in:
 
 ![Player   Cruel king   Griefer   Hatred __ Art from Twitter_X_ @Core_0516 __ Block tales](https://github.com/user-attachments/assets/3f74ba59-c2a8-40e8-a9d0-0cfa0bfdf570)
 
+![sonicracingcrossworlds_hero jpg](https://github.com/user-attachments/assets/a36a54e5-34ba-40fe-b2cb-0579d69478e0)
+
 # for those who doesnt know about me I'm a heartless person when it comes to negative things n feelings and I have temporary guilt which I only feel extreme guilt for short or a bit longer time but I still truly care the one I love
 **!REMINDER: I have extreme anger issue and I'm trying to fix it and if you dont like it you may leave and dont cause any drama since I dont want anymore dramas. I HAD ENOUGH!**
 
