@@ -7,7 +7,7 @@ age: 16 {Prefers to int 15+/ dni 15-}
 
 Gender:a Male but has zero interest in woman but being friend is fine.
 
-![artist_ pcacao_ on X](https://github.com/user-attachments/assets/4a7e4898-8225-446f-918d-38305c907222)
+![Shadow vs Upgraded Metal Sonic](https://i.makeagif.com/media/8-22-2023/TcCK1K.gif)
 
 the Fandom I prefer to be in:
 **PHIGHTING, Block Tales, Forsaken, Dandy world[good side], Team Fortress 2, Cookie run: Kingdom(new to fandom), Genshin impact[Good side]**
