@@ -14,6 +14,8 @@ mostly uses y, yer, yers, yer're as in you, your, youre, you're because im lazy
 the Fandom I prefer to be in:
 **PHIGHTING, Sonic Fandom, Block Tales, Forsaken, Dandy world[good side], Team Fortress 2, Cookie run: Kingdom, Genshin impact[Good side]**
 
+![sonicracingcrossworlds_hero jpg](https://github.com/user-attachments/assets/a36a54e5-34ba-40fe-b2cb-0579d69478e0)
+
 ![Light milk_shadow milk](https://github.com/user-attachments/assets/e3bbbceb-c916-4579-9e9a-0c0b73aa810a)
 
 ![300 primo-gemmes sont à récupérer gratuitement, mais seulement aujourd'hui, sur Genshin Impact !](https://github.com/user-attachments/assets/f1bbc981-f1c1-4733-afbf-abbfc4b89c21)
@@ -21,8 +23,6 @@ the Fandom I prefer to be in:
 ![Phighting Katana and Hyperlaser Art](https://github.com/user-attachments/assets/51d2ca2f-c3b7-4101-acd7-85a4f0d765bc)
 
 ![Player   Cruel king   Griefer   Hatred __ Art from Twitter_X_ @Core_0516 __ Block tales](https://github.com/user-attachments/assets/3f74ba59-c2a8-40e8-a9d0-0cfa0bfdf570)
-
-![sonicracingcrossworlds_hero jpg](https://github.com/user-attachments/assets/a36a54e5-34ba-40fe-b2cb-0579d69478e0)
 
 # for those who doesnt know about me I'm a heartless person when it comes to negative things n feelings and I have temporary guilt which I only feel extreme guilt for short or a bit longer time but I still truly care the one I love
 **!REMINDER: I have extreme anger issue and I'm trying to fix it and if you dont like it you may leave and dont cause any drama since I dont want anymore dramas. I HAD ENOUGH!**
